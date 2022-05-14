@@ -1,5 +1,5 @@
 ## Description
-Warspion Network is a Cracked Minecraft server! Open to both Regular and Cracked players. Our server's player base is intermittently growing since it's first released, users around all over the world playing our amazing gamemodes and enjoying their time here with our beloved community. Can't wait to play? Join play.warspionnetwork.com now!
+Warspion Network is a Cracked Minecraft server! Open to both Regular and Cracked players. Our server's player base is intermittently growing since it's first released, users around all over the world playing our amazing gamemodes and enjoying their time here with our beloved community. Can't wait to play? Join play.warspion.com now!
 
 We have amazing Bedwars server, Skywars, Factions, OP Prisons, Custom Skyblock, TheBridge, UHC, KitPvP and more!
 
